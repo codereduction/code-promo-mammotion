@@ -62,20 +62,20 @@ Vous disposez d’un délai de 30 jours calendaires après la livraison pour dem
 Si le produit présente un défaut de fabrication ou un problème imputable à Mammotion, vous pouvez également demander un retour dans les 30 jours suivant l’achat. Dans ce cas, Mammotion prendra en charge les frais de retour.  ￼
 
 **Procédure de retour**
-	1.	Contactez le service client : Envoyez un e-mail à sales-eu@mammotion.com pour initier la demande de retour.
-	2.	Évaluation de l’éligibilité : Le service client déterminera si votre commande est éligible au retour.
-	3.	Instructions de retour : Si le retour est accepté, vous recevrez des instructions détaillées sur la manière de renvoyer le produit, y compris l’adresse de retour.
-	4.	Expédition du produit : Assurez-vous que le produit est correctement emballé et que tous les composants sont inclus.
-	5.	Remboursement : Une fois le produit reçu et inspecté, un remboursement sera émis dans un délai de 5 jours ouvrables. Des frais de transaction peuvent s’appliquer, variant selon le mode de paiement utilisé.  ￼
+	1.Contactez le service client : Envoyez un e-mail à sales-eu@mammotion.com pour initier la demande de retour.
+	2.Évaluation de l’éligibilité : Le service client déterminera si votre commande est éligible au retour.
+	3.Instructions de retour : Si le retour est accepté, vous recevrez des instructions détaillées sur la manière de renvoyer le produit, y compris l’adresse de retour.
+	4.Expédition du produit : Assurez-vous que le produit est correctement emballé et que tous les composants sont inclus.
+	5.Remboursement : Une fois le produit reçu et inspecté, un remboursement sera émis dans un délai de 5 jours ouvrables. Des frais de transaction peuvent s’appliquer, variant selon le mode de paiement utilisé.  ￼
 
 **Frais associés**
-	•	Frais de retour : Si le retour est dû à un changement d’avis ou à une erreur de commande de votre part, les frais de retour sont à votre charge.
-	•	Frais de transaction : Des frais de transaction peuvent être déduits du remboursement, selon le mode de paiement initial.  ￼
+	•Frais de retour : Si le retour est dû à un changement d’avis ou à une erreur de commande de votre part, les frais de retour sont à votre charge.
+	•Frais de transaction : Des frais de transaction peuvent être déduits du remboursement, selon le mode de paiement initial.  ￼
 
 ## Contacter le service client Mammotion
 **1. Par e-mail**
 Pour toute demande d’assistance ou question concernant un produit, vous pouvez écrire à l’adresse suivante :
-📧 support-eu@mammotion.com  ￼
+support-eu@mammotion.com  ￼
 
 **2. Par téléphone**
 Une ligne dédiée est disponible pour les clients français :
