@@ -39,27 +39,26 @@ Oui, il est généralement possible de cumuler un code promo Mammotion avec une 
 Mammotion se distingue par ses robots tondeuses innovants, conçus pour simplifier l’entretien du jardin avec précision, autonomie et intelligence. Grâce à leur navigation sans fil périmétrique, plus besoin d’installer de câbles contraignants : l’appareil cartographie le terrain et travaille en toute liberté. La marque mise aussi sur une robustesse exceptionnelle, une gestion multi-zones efficace, et une compatibilité avec les terrains complexes ou en pente. Mammotion, c’est l’alliance d’une technologie de pointe, d’un design soigné et d’une expérience utilisateur fluide, le tout à un rapport qualité-prix particulièrement compétitif sur le marché des robots de tonte.
 
 ## Profiter des programmes de parrainage
-Le programme de parrainage Mammotion est une excellente opportunité pour partager votre expérience avec vos proches tout en cumulant des avantages. ￼
+Le programme de parrainage Mammotion est une excellente opportunité pour partager votre expérience avec vos proches tout en cumulant des avantages.
 
-En tant que parrain, vous pouvez générer un lien de parrainage depuis votre compte client et le transmettre à vos amis. Lorsqu’un filleul s’inscrit via ce lien, il reçoit 1 000 points de bienvenue. Une fois que votre filleul effectue sa première commande, vous obtenez 2 500 points supplémentaires. Ces points peuvent être échangés contre des réductions ou des produits sur la boutique en ligne de Mammotion.  ￼
+En tant que parrain, vous pouvez générer un lien de parrainage depuis votre compte client et le transmettre à vos amis. Lorsqu’un filleul s’inscrit via ce lien, il reçoit 1 000 points de bienvenue. Une fois que votre filleul effectue sa première commande, vous obtenez 2 500 points supplémentaires. Ces points peuvent être échangés contre des réductions ou des produits sur la boutique en ligne de Mammotion.
 
-Pour accéder au programme de parrainage, connectez-vous à votre compte Mammotion, puis rendez-vous sur la page dédiée au parrainage. Vous y trouverez votre lien de parrainage unique à partager avec vos proches. ￼
-
-C’est une manière simple et efficace de faire découvrir la marque à votre entourage tout en bénéficiant de récompenses attractives. ￼
+Pour accéder au programme de parrainage, connectez-vous à votre compte Mammotion, puis rendez-vous sur la page dédiée au parrainage. Vous y trouverez votre lien de parrainage unique à partager avec vos proches.
+C’est une manière simple et efficace de faire découvrir la marque à votre entourage tout en bénéficiant de récompenses attractives.
 
 Mammotion propose des programmes de parrainage avantageux. En recommandant la marque à vos proches, vous pouvez bénéficier de réductions supplémentaires, tandis que vos filleuls profitent également d'avantages lors de leur premier achat.
 
 ## Les moyens de paiement sur le site de Mammotion
 Mammotion offre une variété de moyens de paiement sécurisés pour faciliter vos achats en ligne. Lors du règlement de votre commande sur leur site officiel, vous pouvez choisir parmi les options suivantes :
 	•	Cartes bancaires : Visa, Mastercard, American Express, JCB, Maestro, UnionPay
-	•	Portefeuilles numériques : Apple Pay, Google Pay, PayPal ￼ ￼
+	•	Portefeuilles numériques : Apple Pay, Google Pay, PayPal
 
 Ces méthodes de paiement sont conçues pour assurer une transaction rapide et sécurisée. Il est recommandé de vérifier que votre carte est autorisée pour les paiements internationaux, car certaines banques peuvent bloquer les transactions vers des sites étrangers par défaut. En cas de problème, n’hésitez pas à contacter votre établissement bancaire pour autoriser le paiement.
 
 ## Retourner un produit chez Mammotion ?
-Vous disposez d’un délai de 30 jours calendaires après la livraison pour demander un retour. Cependant, pour être éligible, le produit doit être neuf, non utilisé, non activé et conservé dans son emballage d’origine, avec tous les accessoires et composants inclus.  ￼ ￼
+Vous disposez d’un délai de 30 jours calendaires après la livraison pour demander un retour. Cependant, pour être éligible, le produit doit être neuf, non utilisé, non activé et conservé dans son emballage d’origine, avec tous les accessoires et composants inclus.
 
-Si le produit présente un défaut de fabrication ou un problème imputable à Mammotion, vous pouvez également demander un retour dans les 30 jours suivant l’achat. Dans ce cas, Mammotion prendra en charge les frais de retour.  ￼
+Si le produit présente un défaut de fabrication ou un problème imputable à Mammotion, vous pouvez également demander un retour dans les 30 jours suivant l’achat. Dans ce cas, Mammotion prendra en charge les frais de retour.
 
 **Procédure de retour**
 	1.Contactez le service client : Envoyez un e-mail à sales-eu@mammotion.com pour initier la demande de retour.
@@ -70,17 +69,17 @@ Si le produit présente un défaut de fabrication ou un problème imputable à M
 
 **Frais associés**
 	•Frais de retour : Si le retour est dû à un changement d’avis ou à une erreur de commande de votre part, les frais de retour sont à votre charge.
-	•Frais de transaction : Des frais de transaction peuvent être déduits du remboursement, selon le mode de paiement initial.  ￼
+	•Frais de transaction : Des frais de transaction peuvent être déduits du remboursement, selon le mode de paiement initial.
 
 ## Contacter le service client Mammotion
 **1. Par e-mail**
 Pour toute demande d’assistance ou question concernant un produit, vous pouvez écrire à l’adresse suivante :
-support-eu@mammotion.com  ￼
+support-eu@mammotion.com
 
 **2. Par téléphone**
 Une ligne dédiée est disponible pour les clients français :
 📞 +33 800 992 268
-Horaires : du lundi au vendredi, de 9h00 à 17h00 (heure de Paris)  ￼
+Horaires : du lundi au vendredi, de 9h00 à 17h00 (heure de Paris)
 
 **3. Via le site officiel**
 Vous pouvez également remplir un formulaire de contact sur la page dédiée : https://fr.mammotion.com/pages/contact
@@ -88,5 +87,3 @@ Vous pouvez également remplir un formulaire de contact sur la page dédiée : h
 ## Une pelouse parfaite à portée de main
 
 Grâce aux codes promo Mammotion, l'entretien de votre jardin devient plus simple, plus économique et plus technologique. Ne manquez pas l'opportunité d'équiper votre espace vert avec des solutions innovantes tout en réalisant des économies substantielles.
-
----
